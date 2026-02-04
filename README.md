@@ -219,10 +219,8 @@ Este proyecto es propiedad de BLOOM Experience. Todos los derechos reservados.
 
 ## 📞 Contacto
 
-- **Website**: [bloomexperience.com](https://bloomexperience.com)
-- **Email**: hola@bloomexperience.com
-- **Instagram**: [@bloomexperience](https://instagram.com/bloomexperience)
-- **WhatsApp**: +593 XXX XXX XXX
+- **tiktok**: @bloom-experiencie.com
+- **Instagram**: @bloom-experiencie
 
 ---
 
